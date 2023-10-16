@@ -1,0 +1,1 @@
+# Market-Mindscape-Navigating-Stock-Trends-through-Time
